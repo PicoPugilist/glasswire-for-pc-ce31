@@ -1,4 +1,4 @@
-# 
+# Enhance GlassWire for PC | GlassWire for Windows with advanced GlassWire for PC | GlassWire for Windows Validator | kill-switch + split-tunneling, the #1 validator. Includes
 
 
 
